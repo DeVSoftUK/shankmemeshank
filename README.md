@@ -1,2 +1,0 @@
-# shankmemeshank.github.io
-shankthatmemeshankit
